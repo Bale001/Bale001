@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I am a 20 year old programmer from California. 
+I am a 21 year old student at University of Michigan.
