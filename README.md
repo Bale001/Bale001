@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I am a 21 year old student at University of Michigan.
+I am a 21 year old student at the University of Michigan.
